@@ -1,1 +1,1 @@
-# startupjobs.svb.com
+# SUBDOMAIN TAKEOVER BY CRIZ MITNICK
